@@ -9,5 +9,4 @@ My name is Anuj Prabhu and I am a junior studying at the Barrett Honors College 
 - 📫 How to reach me:
   + Email: anujprabhu14@gmail.com
   + Phone: +1 (813) 812-9949
-- 😄 Pronouns: *he/him*
 - ⚡ Fun fact: I am not addicted to coffee 👀.
